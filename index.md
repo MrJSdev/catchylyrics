@@ -15,12 +15,17 @@ This are the best Kishore Kumar hit songs lyrics collections that are written by
 
 ### [Lata Mangeshkar song lyrics](http://catchylyrics.net/lata-mangeshkar-songs-lyrics/)
 ![Lata Mangeshkar image](http://catchylyrics.net/wp-content/uploads/2017/01/lata-mangeshkar-songs-lyrics-768x407.jpg)
+
 Do you guys want the super queen of singer’s Lata Mangeshkar Songs Lyrics that she sang yet? Then you are at right place. We got all of her songs with lyrics.
 
 ### [Mohammed Rafi songs lyrics](http://catchylyrics.net/mohammed-rafi-songs-lyrics/)
+![Mohammed Rafi image](http://catchylyrics.net/wp-content/uploads/2016/12/mohammed-rafi-songs-lyrics-768x407.jpg)
+
 Do you guys want the Legendary Singer Mohammed Rafi’s songs lyrics then you are at right place.
 
 ### [Kumar Sanu songs lyrics](http://catchylyrics.net/kumar-sanu-songs-lyrics/)
+![Kumar Sanu image](http://catchylyrics.net/wp-content/uploads/2016/12/kumar-sanu-songs-lyrics-768x407.jpg)
+
 Are you guys want the legendary singer Kumar Sanu Songs Lyrics that you desire to read and listen to its songs, Then you came the right place.
 
 ### [Udit Narayan songs lyrics](http://catchylyrics.net/udit-narayan-songs-lyrics/)
