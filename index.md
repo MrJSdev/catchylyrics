@@ -34,7 +34,7 @@ Are you guys want the legendary singer Kumar Sanu Songs Lyrics that you desire t
 Do you guys want the best, famous , hit, and mind blowing, super singer Udit Narayan Songs Lyrics that he ever sung till now. Then you came right place.
 
 ### [Arijit Singh songs lyrics](http://catchylyrics.net/arijit-singh-songs-lyrics-list-of-top-songs/)
-![Arijit Singh image](http://catchylyrics.net/wp-content/uploads/2016/06/arijit-singh-top-song-lyrics-catchylyrics-.jpg)
+![Arijit Singh image](http://catchylyrics.net/wp-content/uploads/2016/06/arijit-singh-top-song-lyrics-catchylyrics-2.jpg)
 
 Do you want Arijit Singh best top songs lyrics that are most famous and soulful? Then you came the right place.
 
@@ -44,7 +44,7 @@ Do you want Arijit Singh best top songs lyrics that are most famous and soulful?
 Are you guys want the Alka Yagnik Best Songs Lyrics that she ever sang and got hits, Then you came the right place.
 
 ### [Shreya Ghoshal songs lyrics](http://catchylyrics.net/best-of-shreya-ghoshal-hits-songs-lyrics/)
-![Shreya Ghoshal image](http://catchylyrics.net/wp-content/uploads/2016/06/shreya-ghoshal-top-song-lyrics-catchylyrics-2.jpg)
+![Shreya Ghoshal image](http://catchylyrics.net/wp-content/uploads/2016/06/shreya-ghoshal-top-song-lyrics-catchylyrics-.jpg)
 
 Do you guys want Shreya Ghoshal’s best song lyrics that are quite famous and catchy. Then you came right place..
 
