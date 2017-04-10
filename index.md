@@ -35,3 +35,8 @@ Do you guys want Shreya Ghoshal’s best song lyrics that are quite famous and c
 ### [Mukesh songs lyrics](http://catchylyrics.net/mukesh-songs-lyrics/)
 Are you guys want the legendary singer Mukesh Songs Lyrics that fresh your mind and make your day bright and energetic, Then you landed on the right planet.
 
+### [Badshah songs lyrics](http://catchylyrics.net/badshah-songs-lyrics/)
+Do you guys wants the all of the Badshah Songs Lyrics that you love, Then you came right place. Here we have collected all of he’s best songs lyrics that he sung yet.
+
+### [Neha Kakkar songs lyrics](http://catchylyrics.net/Neha Kakkar-songs-lyrics/)
+Are you guys want the Neha Kakkar’s latest and best songs lyrics that she ever sang and got hits, Then you came the right place.
