@@ -11,3 +11,5 @@ Hey guys are you want the best Lagendary Singer Kishore Kumar’s Songs Lyrics, 
 
 This are the best Kishore Kumar hit songs lyrics collections that are written by famous lyricists like Anand Bakshi, Gushan Bawra, Anjaan, Majrooh Sultanpuri and many more.
 
+### [Lata Mangeshkar song lyrics](http://catchylyrics.net/lata-mangeshkar-songs-lyrics/)
+Do you guys want the super queen of singer’s Lata Mangeshkar Songs Lyrics that she sang yet? Then you are at right place. We got all of her songs with lyrics.
