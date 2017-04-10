@@ -44,7 +44,7 @@ Do you want Arijit Singh best top songs lyrics that are most famous and soulful?
 Are you guys want the Alka Yagnik Best Songs Lyrics that she ever sang and got hits, Then you came the right place.
 
 ### [Shreya Ghoshal songs lyrics](http://catchylyrics.net/best-of-shreya-ghoshal-hits-songs-lyrics/)
-![Shreya Ghoshal image](http://catchylyrics.net/wp-content/uploads/2016/06/shreya-ghoshal-top-song-lyrics-catchylyrics-2-768x407.jpg)
+![Shreya Ghoshal image](http://catchylyrics.net/wp-content/uploads/2016/06/shreya-ghoshal-top-song-lyrics-catchylyrics-2-.jpg)
 
 Do you guys want Shreya Ghoshal’s best song lyrics that are quite famous and catchy. Then you came right place..
 
