@@ -40,3 +40,13 @@ Do you guys wants the all of the Badshah Songs Lyrics that you love, Then you ca
 
 ### [Neha Kakkar songs lyrics](http://catchylyrics.net/neha-kakkar-songs-lyrics/)
 Are you guys want the Neha Kakkar’s latest and best songs lyrics that she ever sang and got hits, Then you came the right place.
+
+### [Atif Aslam songs lyrics](http://catchylyrics.net/atif-aslam-songs-lyrics/)
+Do you guys want the best songs lyrics of Atif Aslam that he ever sung till now. Then you came right place. Here we have posted all of his fantastic, romantic, heart touching, sad, emotional, effective, catchy songs lyrics.
+
+### [Ankit Tiwari songs lyrics](http://catchylyrics.net/ankit-tiwari-songs-lyrics/)
+Hey guys do you want the best songs lyrics of Ankit Tiwari which he ever sung?. Then you came right place.
+here we have collected all of his best, romantic, heart touching, effective songs lyrics.
+
+
+
