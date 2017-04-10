@@ -48,5 +48,6 @@ Do you guys want the best songs lyrics of Atif Aslam that he ever sung till now.
 Hey guys do you want the best songs lyrics of Ankit Tiwari which he ever sung?. Then you came right place.
 here we have collected all of his best, romantic, heart touching, effective songs lyrics.
 
-
-
+### [Kisi Ki Muskurahaton Pe Ho Nisar Lyrics – Mukesh – Anari (1959)](http://catchylyrics.net/2017/04/kisi-ki-muskurahaton-pe-lyrics/)
+![Ankit image](http://catchylyrics.net/wp-content/uploads/2017/03/kisi-ki-muskurahato-pe.jpg)
+Kisi Ki Muskurahaton Pe Ho Nisar Lyrics : The Beautiful Old Romantic, Love Song from the Movie Anari Which is Sung by the Very famous… [Read More..]
