@@ -7,6 +7,7 @@ Pyaar Manga Hai Lyrics : The Lovely Romantic Song in which Zareen Khan is Romanc
 Pyaar Manga Hai Lyrics : The Lovely Romantic Song in which Zareen Khan is Romancing Ali Fazal & Making Love Scenes Which is Sung Beautifully… [Read More..]
 
 ### [Kishore Kumar songs lyrics](http://catchylyrics.net/kishore-kumar-songs-lyrics/)
+![Kishore Kumar image](http://catchylyrics.net/wp-content/uploads/2016/12/kishore-kumar-songs-lyrics-768x407.png)
 Hey guys are you want the best Lagendary Singer Kishore Kumar’s Songs Lyrics, then you came right place. Here we have listed all of his best and most heart touching songs lyrics that you would love take a look. We are not only written the lyrics but also we have added video song of that lyrics.
 
 This are the best Kishore Kumar hit songs lyrics collections that are written by famous lyricists like Anand Bakshi, Gushan Bawra, Anjaan, Majrooh Sultanpuri and many more.
