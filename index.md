@@ -74,4 +74,9 @@ Do you guys want the best songs lyrics of Atif Aslam that he ever sung till now.
 Hey guys do you want the best songs lyrics of Ankit Tiwari which he ever sung?. Then you came right place.
 here we have collected all of his best, romantic, heart touching, effective songs lyrics.
 
+### [Sonu Nigam songs lyrics](http://catchylyrics.net/sonu-nigam-songs-lyrics/)
+![Sonu Nigam image](http://catchylyrics.net/sonu-nigam-songs-lyrics/)
 
+Do you want Sonu Nigam’s best songs lyrics that are most catchy, famous and heart touching? Then you came the right place.
+
+Here we have collected all the hits songs of Song Nigam from when he started to yet. We have all collected romantic, lovely, catchy, sad song lyrics of his.
