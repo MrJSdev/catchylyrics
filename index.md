@@ -1,11 +1,5 @@
 # Welcome to Catchy Lyrics
 
-### [Pyaar Manga Hai Lyrics – Armaan Malik | Neeti Mohan](http://catchylyrics.net/2017/04/pyaar-manga-hai-lyrics/)
-Pyaar Manga Hai Lyrics : The Lovely Romantic Song in which Zareen Khan is Romancing Ali Fazal & Making Love Scenes Which is Sung Beautifully… [Read More..]
-
-### [Khoon Khaulda Lyrics – John Bedi Punjabi Song](http://catchylyrics.net/2017/04/khoon-khaulda-lyrics/)
-Pyaar Manga Hai Lyrics : The Lovely Romantic Song in which Zareen Khan is Romancing Ali Fazal & Making Love Scenes Which is Sung Beautifully… [Read More..]
-
 ### [Kishore Kumar songs lyrics](http://catchylyrics.net/kishore-kumar-songs-lyrics/)
 ![Kishore Kumar image](http://catchylyrics.net/wp-content/uploads/2016/12/kishore-kumar-songs-lyrics-768x407.png)
 
@@ -122,3 +116,13 @@ Here we have posted all of the Rahat Fateh Ali Khan Songs Lyrics List that are q
 Do you guys want the all of the YO YO Honey Singh Songs Lyrics that you love, Then you came right place? Here we have collected all of his best songs lyrics that he sang yet.
 
 YO YO Honey Singh Songs are popular with his RAP. Here we have best of Hindi, Punjabi Songs Lyrics collection with its video so you guys would enjoy to read lyrics and listen to the song at the same time.
+
+
+# Best English Songs Singers Lists
+
+### [Ed Sheeran Singh songs lyrics](http://catchylyrics.net/ed-sheeran-songs-lyrics/)
+![Ed Sheeran Singh image](http://catchylyrics.net/wp-content/uploads/2017/03/ed-sheeran-songs-lyrics.jpg)
+
+Are you guys want the best singer Ed Sheeran Songs Lyrics that you desire to read and listen to its songs, Then you came the right place.
+
+Here we have posted all of the Ed Sheeran’s Songs Lyrics Lists that are quite famous and got hit.
