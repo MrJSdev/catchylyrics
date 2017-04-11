@@ -141,9 +141,9 @@ Are you guys want the lovely, beautiful, talented younger singer Selena Gomez So
 
 Here we have posted all of the awesome Selena Gomez’s Songs Lyrics Lists that are fantastic, famous and got lots of hits.
 
-### [Selena Gomez songs lyrics](http://catchylyrics.net/selena-gomez-songs-lyrics/)
-![Selena Gomez image](http://catchylyrics.net/wp-content/uploads/2017/03/selena-gomez-songs-lyrics.jpg)
+### [Taylor Swift songs lyrics](http://catchylyrics.net/taylor-swift-songs-lyrics/)
+![Taylor Swift image](http://catchylyrics.net/wp-content/uploads/2017/03/taylor-swift-songs-lyrics.jpg)
 
-Are you guys want the lovely, beautiful, talented younger singer Selena Gomez Songs Lyrics that win lots of people’s heart? Then you came at the right place.
-
-Here we have posted all of the awesome Selena Gomez’s Songs Lyrics Lists that are fantastic, famous and got lots of hits.
+Do you guys want the best, amazing, lovely, beautiful, talented English younger singer Taylor Swift Songs Lyrics that win lots of people’s heart? Then you land at the right place.
+Here we have posted all of the awesome Taylor Swift’s Songs Lyrics List that are mindblowing, famous and got lots of hits.
+We have gathered all types of songs that she sung like love, romantic, sad, heart touching, motivational, break-up from the best collection.
