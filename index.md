@@ -87,3 +87,26 @@ Here we have collected all the hits songs of Song Nigam from when he started to 
 Do you guys want the super queen of singer’s Asha Bhosle Songs Lyrics that she sang yet? Then you land at the right place. We got all of her hit songs with lyrics.
 
 Here we have posted all the old best hit songs lyrics that Asha Bhosle sang.
+
+### [Mika Singh songs lyrics](http://catchylyrics.net/mika-singh-songs-lyrics/)
+![Mika Singh image](http://catchylyrics.net/wp-content/uploads/2017/03/mika-singh-songs-lyrics.jpg)
+
+Do you guys wants the all of the Mika Singh’s Songs Lyrics that are fantastic and heart touching, Then you came the right place. Here we have collected all of his best songs lyrics that he sang yet.
+
+Here we have collected Best Hindi, Punjabi, Haryani Songs Lyrics of Mika Sing’s that you would enjoy to read lyrics and listen to the song and watch the video at the same time.
+
+### [Sunidhi Chauhan songs lyrics](http://catchylyrics.net/sunidhi-chauhan-songs-lyrics/)
+![Sunidhi Chauhan image](http://catchylyrics.net/wp-content/uploads/2017/03/sunidhi-chauhan-songs-lyrics.jpg)
+
+Do you guys want the Sunidhi Chauhan’s best songs lyrics that are quite famous, heart touching and catchy? Then you came the right place.
+
+Here I have posted all of the Sunidhi Chauhan’s heart touching, sensational, romantic, lovely, catchy, sad affectionate songs lyrics that you all going to love.
+
+### [Raftaar songs lyrics](http://catchylyrics.net/raftaar-songs-lyrics/)
+![Raftaar image](http://catchylyrics.net/wp-content/uploads/2017/03/raftaar-songs-lyrics.jpg)
+
+Do you guys want the all of the Raftaar Songs Lyrics that will catch your attention and make you fall in love with that songs lyrics, Then you came right place? Here we have collected all of his best songs lyrics that he sang yet.
+
+Raftaar’s Songs are popular with his RAP. Here we have best of Hindi, Punjabi Songs Lyrics collection with its video so you guys would enjoy to read lyrics and listen to the song at the same time.
+
+
