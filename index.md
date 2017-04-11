@@ -109,4 +109,16 @@ Do you guys want the all of the Raftaar Songs Lyrics that will catch your attent
 
 Raftaar’s Songs are popular with his RAP. Here we have best of Hindi, Punjabi Songs Lyrics collection with its video so you guys would enjoy to read lyrics and listen to the song at the same time.
 
+### [Rahat Fateh Ali songs lyrics](http://catchylyrics.net/rahat-fateh-ali-khan-songs-lyrics/)
+![Rahat Fateh Ali image](http://catchylyrics.net/wp-content/uploads/2017/03/rahat-fateh-ali-khan-songs-lyrics.jpg)
 
+Are you guys want the legendary singer Rahat Fateh Ali Khan’s Songs Lyrics that will touch your heart Then you came the right place.
+
+Here we have posted all of the Rahat Fateh Ali Khan Songs Lyrics List that are quite famous and got lots of hit.
+
+### [Yo Yo Honey Singh songs lyrics](http://catchylyrics.net/yo-yo-honey-singh-songs-lyrics/)
+![Yo Yo Honey Singh image](http://catchylyrics.net/wp-content/uploads/2017/03/honey-singh-songs-lyrics.jpg)
+
+Do you guys want the all of the YO YO Honey Singh Songs Lyrics that you love, Then you came right place? Here we have collected all of his best songs lyrics that he sang yet.
+
+YO YO Honey Singh Songs are popular with his RAP. Here we have best of Hindi, Punjabi Songs Lyrics collection with its video so you guys would enjoy to read lyrics and listen to the song at the same time.
