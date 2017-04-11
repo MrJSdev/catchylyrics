@@ -75,7 +75,7 @@ Hey guys do you want the best songs lyrics of Ankit Tiwari which he ever sung?. 
 here we have collected all of his best, romantic, heart touching, effective songs lyrics.
 
 ### [Sonu Nigam songs lyrics](http://catchylyrics.net/sonu-nigam-songs-lyrics/)
-![Sonu Nigam image](http://catchylyrics.net/sonu-nigam-songs-lyrics/)
+![Sonu Nigam image](http://catchylyrics.net/wp-content/uploads/2017/03/sonu-nigam-songs-lyrics.jpg)
 
 Do you want Sonu Nigam’s best songs lyrics that are most catchy, famous and heart touching? Then you came the right place.
 
