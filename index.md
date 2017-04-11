@@ -120,9 +120,30 @@ YO YO Honey Singh Songs are popular with his RAP. Here we have best of Hindi, Pu
 
 # Best English Songs Singers Lists
 
-### [Ed Sheeran Singh songs lyrics](http://catchylyrics.net/ed-sheeran-songs-lyrics/)
-![Ed Sheeran Singh image](http://catchylyrics.net/wp-content/uploads/2017/03/ed-sheeran-songs-lyrics.jpg)
+### [Ed Sheeran songs lyrics](http://catchylyrics.net/ed-sheeran-songs-lyrics/)
+![Ed Sheeran image](http://catchylyrics.net/wp-content/uploads/2017/03/ed-sheeran-songs-lyrics.jpg)
 
 Are you guys want the best singer Ed Sheeran Songs Lyrics that you desire to read and listen to its songs, Then you came the right place.
 
 Here we have posted all of the Ed Sheeran’s Songs Lyrics Lists that are quite famous and got hit.
+
+### [Adele songs lyrics](http://catchylyrics.net/adele-songs-lyrics/)
+![Adele image](http://catchylyrics.net/wp-content/uploads/2017/03/adele-songs-lyrics.jpg)
+
+Do you guys want the best, amazing, lovely, beautiful, talented English singer and songwriter Adele Songs Lyrics that win lots of people’s heart? Then you land at the right place.
+
+Here we have posted all of the awesome Adele’s (Adele Laurie Blue Adkins MBE) Songs Lyrics List that is mindblowing, famous and got lots of hits.
+
+### [Selena Gomez songs lyrics](http://catchylyrics.net/selena-gomez-songs-lyrics/)
+![Selena Gomez image](http://catchylyrics.net/wp-content/uploads/2017/03/selena-gomez-songs-lyrics.jpg)
+
+Are you guys want the lovely, beautiful, talented younger singer Selena Gomez Songs Lyrics that win lots of people’s heart? Then you came at the right place.
+
+Here we have posted all of the awesome Selena Gomez’s Songs Lyrics Lists that are fantastic, famous and got lots of hits.
+
+### [Selena Gomez songs lyrics](http://catchylyrics.net/selena-gomez-songs-lyrics/)
+![Selena Gomez image](http://catchylyrics.net/wp-content/uploads/2017/03/selena-gomez-songs-lyrics.jpg)
+
+Are you guys want the lovely, beautiful, talented younger singer Selena Gomez Songs Lyrics that win lots of people’s heart? Then you came at the right place.
+
+Here we have posted all of the awesome Selena Gomez’s Songs Lyrics Lists that are fantastic, famous and got lots of hits.
