@@ -80,3 +80,10 @@ here we have collected all of his best, romantic, heart touching, effective song
 Do you want Sonu Nigam’s best songs lyrics that are most catchy, famous and heart touching? Then you came the right place.
 
 Here we have collected all the hits songs of Song Nigam from when he started to yet. We have all collected romantic, lovely, catchy, sad song lyrics of his.
+
+### [Asha Bhosle songs lyrics](http://catchylyrics.net/asha-bhosle-songs-lyrics/)
+![Asha Bhosle image](http://catchylyrics.net/wp-content/uploads/2017/03/asha-bhosle-songs-lyrics.jpg)
+
+Do you guys want the super queen of singer’s Asha Bhosle Songs Lyrics that she sang yet? Then you land at the right place. We got all of her hit songs with lyrics.
+
+Here we have posted all the old best hit songs lyrics that Asha Bhosle sang.
