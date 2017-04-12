@@ -151,3 +151,6 @@ We have gathered all types of songs that she sung like love, romantic, sad, hear
 ### [Main Phir Bhi Tumko Chahunga Lyrics](http://catchylyrics.net/2017/04/main-phir-bhi-tumko-chahunga-lyrics/)
 Romantic songs lyrics of catchy.
 
+### [BAARISH LYRICS – Half Girlfriend – Ash King, Shashaa Tirupati](http://catchylyrics.net/2017/04/baarish-lyrics-half-girlfriend/)
+Romantic songs lyrics of catchy.
+
