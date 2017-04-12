@@ -154,3 +154,48 @@ Romantic songs lyrics of catchy.
 ### [BAARISH LYRICS – Half Girlfriend – Ash King, Shashaa Tirupati](http://catchylyrics.net/2017/04/baarish-lyrics-half-girlfriend/)
 Romantic songs lyrics of catchy.
 
+###[http://catchylyrics.net/2017/04/chikni-chameli-lyrics/](http://catchylyrics.net/2017/04/chikni-chameli-lyrics/)
+Chikni Chameli Lyrics : The Lovely Item Song from the Movie Agneepath in which Katrina is Dancing with her lovely Steps Which is Sung by
+
+### [http://catchylyrics.net/2017/04/saathiya-song-lyrics/](http://catchylyrics.net/2017/04/saathiya-song-lyrics/)
+Saathiya Lyrics : The Best Love Song from the Movie Singham in which Both Actor & Actress is Romancing Which is Sung by Shreya Ghoshal…
+
+### [http://catchylyrics.net/2017/04/lovely-lyrics/](http://catchylyrics.net/2017/04/lovely-lyrics/)
+Lovely Lyrics : The Sensational item Song from the Movie Happy New Year in which Deepika is Dancing which is Sung by Kanika Kapoor, Ravindra
+
+### [http://catchylyrics.net/2017/04/da-da-dasse-lyrics/](http://catchylyrics.net/2017/04/da-da-dasse-lyrics/)
+Da Da Dasse Lyrics : The Lovely Snake Song from the Movie Udta Punjab in which everyone is Enjoying by taking Drugs Which is Sung
+
+### [Bentley Lyrics – Avi Basra ft. Gangis Khan](http://catchylyrics.net/2017/04/bentley-lyrics/)
+Bentley Lyrics : The all new Swag Punjabi Song Which is Sung by Avi Basra, Gangis Khan & the Lovely Beats Music is Composed by
+
+### [Haniya Lyrics – Karun | Jassi Katyal | Latest Punjabi Song](http://catchylyrics.net/2017/04/haniya-lyrics/)Haniya Lyrics : The Lovely Sensational Sad, Punjabi Song which is Sung by Karun & the Beautiful Lyrics is written by Vinder Nathu Majra &
+
+### [Sachin’s Cricket Wali Beat Lyrics – Sachin Tendulkar Ft. Sonu Nigam](http://catchylyrics.net/2017/04/sachins-cricket-wali-beat-lyrics/)Sachin’s Cricket Wali Beat Lyrics: The best inspirational amazing Hindi Song lyrics that is sung by Sachin Tendulkar & Sonu Nigam. This song is Sachin
+
+### [Mercy Lyrics – Badshah Feat. Lauren Gottlieb – ONE](http://catchylyrics.net/2017/04/mercy-lyrics-badshah/)MERCY LYRICS: The one of the latest lovely RAP song which is a mix of Hindi, Punjabi & English language. The song is sung by
+
+### [Kalli Kalli Pagg Lyrics – Harpreet S Dhami – Jass Sing](http://catchylyrics.net/2017/04/kalli-kalli-pagg-lyrics/)Kalli Kalli Pagg Lyrics: The lovely latest romantic Punjabi Song lyrics from the album. This song is sung by Harpreet S Dhami and lyrics are
+
+### [SANWLA MAHI LYRICS – Girik Aman | Punjabi Song](http://catchylyrics.net/2017/04/sanwla-mahi-lyrics/)SANWLA MAHI LYRICS; This romantic punjabi song is sung by Girik Aman. music composed by Gag Studioz and lyrics are written by Davinder Gumti. SANWLA
+
+### [SANWLA MAHI LYRICS – Girik Aman | Punjabi Song](http://catchylyrics.net/2017/04/sanwla-mahi-lyrics/)SANWLA MAHI LYRICS; This romantic punjabi song is sung by Girik Aman. music composed by Gag Studioz and lyrics are written by Davinder Gumti. SANWLA
+
+### [Kesi Yeh Judai Lyrics – Shivai Galti 4](http://catchylyrics.net/2017/04/kesi-yeh-judai-lyrics-kesi-yeh-judai-hai-shivai-galti-4/)Kesi yeh judai lyrics;Kesi yeh judai One of the best beautiful Sad Song lyrics by Shivai. This song is called Kesi yeh judai and also
+
+### [Only Girl (In The World) Lyrics – Rihanna – Loud](http://catchylyrics.net/2017/04/only-girl-in-the-world-lyrics/)Only Girl In The World Lyrics: An awesome Vevo’s English song lyrics from the album Loud. This song is sung by Rihanna and it is
+
+### [Love The Way You Lie Lyrics – Eminem ft. Rihanna](http://catchylyrics.net/2017/04/love-the-way-you-lie-lyrics/)
+Love The Way You Lie Lyrics: One of the most famous and best song lyris from Vevo. This song is sung by Eminem and Rihanna
+
+### [Diamonds Lyrics – Rihanna – Unapologetic](http://catchylyrics.net/2017/04/diamonds-lyrics-rihanna/)
+Diamonds Lyrics: The best English song lyrics ever from the album of Unapologetic. This song is sung by Rihanna and it is got nominated for
+
+### [International Love Lyrics – Pitbull Ft. Chris Brown](http://catchylyrics.net/2017/04/international-love-lyrics/)International Love Lyrics: The best lovely and amazing English song lyrics from the album Planet Pit. This song is sung by Pitbull and Chris Brown
+
+### [Rain Over Me Lyrics – Pitbull ft. Marc Anthony – Planet Pit](http://catchylyrics.net/2017/04/rain-over-me-lyrics/)Rain Over Me Lyrics: The awesome, fantastic song lyrics from the album Planet Pit. This song is sung by Pitbull and Marc Anthony. The song
+
+### [Sugar Lyrics – Maroon 5 – V – English Song](http://catchylyrics.net/2017/04/sugar-lyrics-maroon-5/)Sugar Lyrics: An amazing famous catchy song lyrics that nominated for Grammy Award for Best Pop Duo/Group Performance & more. This song is sung by…
+
+### [Summer Lyrics – Calvin Harris – English Song](http://catchylyrics.net/2017/04/summer-lyrics-calvin-harris/)Summer Lyrics: One of the most popular English song ever that nominated for Brit Award for British Single & more. This song is sung by
+
