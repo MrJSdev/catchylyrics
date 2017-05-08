@@ -777,6 +777,56 @@ Bachapan Ki Yaad Lyrics: A lovely old song lyrics from the movie Shaheed (1948) 
 ### [Aisa Kuch Shot Nai Hai Lyrics – Emiway (EM 24/7) Song](http://catchylyrics.net/2017/05/aisa-kuch-shot-nai-hai-lyrics/)
 Aisa Kuch Shot Nai Hai Lyrics This is the best rap song lyrics that is sung, lyrics are written and music composed by Emiway. The…
 
+### [Jaane Jigar Jaaneman Song Lyrics – Aashiqui by Kumar Sanu](http://catchylyrics.net/2012/01/jaane-jigar-jaaneman-lyrics-aashiqui/)
+Jaane Jigar Jaaneman Lyrics: The ever lovely song lyrics from the movie Aashiqui which is sung by Kumar Sanu and Anuradha. The lyrics written by
 
+### [Mera Dil Bhi Kitna Pagal Hai Song Lyrics – Saajan](http://catchylyrics.net/2012/01/mera-dil-bhi-kitna-pagal-hai-song-lyrics-saajan/)
+Mera Dil Bhi Kitna Pagal Hai Lyrics: The wonderful, lovely, romantic, and peaceful song from the movie Saajan, The song sung by Alka Yagnik and
 
+### [Sanson Ki Zaroorat Lyrics – Aashiqui By Kumar Sanu](http://catchylyrics.net/2012/01/sanson-ki-zaroorat-aashiqui/)
+Sanson Ki Zaroorat Lyrics: A fabulous, romantic, affectionate, devoted and lovely song lyrics from the movie Aashiqui (1990) which is sung by Kumar Sanu and
 
+### [Dil Ka Aalam Mein Kya Bataun Tujhe Song Lyrics – Aashiqui](http://catchylyrics.net/2012/01/dil-ka-aalam-mein-kya-bataun-tujhe-aashiqui/)
+Dil Ka Aalam Mai Kya Bataun Tujhe Lyrics: A lovely, romantic, passionate song lyrics from the movie Aashiqui (1990) that is sung by Kumar Sanu
+
+### [Pehli Baar Mile Hain Song Lyrics – Saajan 1991](http://catchylyrics.net/2012/01/pehli-baar-mile-hain-lyrics-saajan/)
+Pehli Baar Mile Hain Lyrics: One of romantic and lovely song from the movie Saajan (1991) which is sung by S.P Balasubrahmanyam. The music is…
+
+### [Ab Tere Bin Jee Lenge Hum Song Lyrics – Aashiqui](http://catchylyrics.net/2012/01/ab-tere-bin-jee-lenge-hum-song-lyrics-aashiqui/)
+Ab Tere Bin Jee Lenge Hum Lyrics: The sad and full of emotions song lyrics from the movie Aashiqui that is sung by Kumar Sanu
+
+### [Dekha Hai Pehli Baar Saajan Ki Aankhon Mein Pyaar Song Lyrics – Saajan](http://catchylyrics.net/2012/01/dekha-hai-pehli-baar-saajan-ki-aankhon-mein-pyaar-song-lyrics/)
+Dekha Hai Pehli Baar Saajan Ki Aankhon Mein Pyaar Lyrics: One of ever best romantic, lovely song lyrics from the movie Saajan which is sung…
+
+### [Dheere Dheere Se Lyrics – Aashiqui – Kumar Sanu & Anuradha](http://catchylyrics.net/2012/01/dheere-dheere-se-lyrics-aashiqui/)
+Dheere Dheere Se Lyrics: One of the best romantic, a heart touching, the lovely song from the movie Aashiqui (1990) which is sung by Kumar
+
+### [Tu Meri Zindagi Hai Song Lyrics – Aashiqui Title Song](http://catchylyrics.net/2012/01/tu-meri-zindagi-hai-aashiqui-title-song-lyrics/)
+Tu Meri Zindagi Hai Lyrics: The fabulous, lovely, emotional, affectionate, heart touching and romantic song lyrics from the movie Aashiqui (1990) that is sung by
+
+### [Tujhse Naraz Nahi Zindagi Song Lyrics – Masoom (1983)](http://catchylyrics.net/2012/02/tujhse-naraz-nahi-zindagi-song-lyrics-masoom/)
+Tujhse Naraz Nahi Zindagi Lyrics: A lovely and most top song since 1983 from the movie Masoom which is sung by Lata Mangeshkar and starring
+
+### [Bole Chudiyan Song Lyrics – Kabhi Khushi Kabhie Gham](http://catchylyrics.net/2012/02/bole-chudiyan-bole-kangana-song-lyrics/)
+Bole Chudiyan Bole Kangana Lyrics: A lovely, make smile, make you dance, romantic song from the movie Kabhi Khushi Kabhie Gham which is sung by
+
+### [Bahut Pyar Karte Hain Tumko Sanam Song lyrics – Saajan (1991)](http://catchylyrics.net/2012/02/bahut-pyar-karte-hain-lyrics-saajan/)
+Bahut Pyaar Karte Hain Lyrics: The one of lovely, heart touching, emotional and fascinated song lyrics from the movie Saajan (1991). The song is sung
+
+### [Tere Mere Milan Ki Ye Raina Song Lyrics – Abhimaan](http://catchylyrics.net/2012/02/tere-mere-milan-ki-ye-raina-song-lyrics-abhimaan/)
+Tere Mere Milan Ki Ye Raina Lyrics: A nice and heart touching song lyrics from the movie of Abhimann (1973) which is sung by Kishore…
+
+### [Kabhi Kabhi Mere Dil Mein Khayal Aata Hai Full Song Lyrics](http://catchylyrics.net/2012/02/kabhi-kabhi-mere-dil-mein/)
+Kabhi Kabhi Mere Dil Mein Khayal Aata Hai Lyrics: A lovely and affectionate, passionate and emotional song lyrics from the movie Kabhi Kabhi (1976). The
+
+### [Pyar Kiya To Darna Kya Full Song Lyrics – Mughal E Azam](http://catchylyrics.net/2012/02/pyar-kiya-to-darna-kya-lyrics-song-mughal-e-azam/)
+Pyar Kiya To Darna Kya Lyrics: The best love courage, romantic, warm, passionate and lovely song lyrics from the move MUghal-E-Azam (1960). The song sung
+
+### [Pal Pal Dil Ke Paas Tum Rahti Ho Song Lyrics – Blackmail](http://catchylyrics.net/2012/02/pal-pal-dil-ke-paas-tum-rehti-ho-song-lyrics/)
+Pal Pal Dil Ke Paas Tum Rehti Ho Lyrics: A romantic, lovely, heart touching song lyrics from the movie Blackmail (1973) which is sung by our…
+
+### [Mere Sapno Ki Rani Kab Aayegi Tu Lyrics – Kishore Kumar](http://catchylyrics.net/2012/02/mere-sapno-ki-rani-kab-aayegi-tu-lyrics/)
+Nazar ke Saamne Jigar Ke Paas lyrics: One of beautiful lovely, full of love and romantic song lyrics that is written by Sameer and Sung
+
+### [Main Duniya Bhula Dunga Song Lyrics – Aashiqui By Kumar Sanu](http://catchylyrics.net/2012/01/mein-duniya-bhula-dunga-aashiqui-song/)
+Main Duniya Bhula Dunga Lyrics: The one of lovely, heart touching, devoted and romantic song lyrics from the movie Aashiqui (1990). The song sung by
